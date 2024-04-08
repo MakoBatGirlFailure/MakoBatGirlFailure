@@ -6,3 +6,4 @@ Eae! Meu nome é Makoto (ou só Mako mesmo), sou uma artista, programadora, estu
 🏴󠁧󠁢󠁥󠁮󠁧󠁿
 Hello!!! My name is Makoto (Mako for short), I'm an artist, programmer, university student and a newbie game developer. I have an ambition to be able to create something that amuses me and other people around! My bio it's still under construction, so I'll improve my bio eventualy.
 
+Profile pic by [Jugg](https://twitter.com/Juggryph/)
